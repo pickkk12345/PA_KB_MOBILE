@@ -66,3 +66,12 @@ terakhir ada profile page yang berisi informasi pribadi, tentang aplikasi serta 
 
 
 
+
+
+
+
+
+
+## LINK G DRIVE
+https://drive.google.com/drive/folders/10sWxbVV1kYIpdLU3ZLqA_Ez-nlCA1KHX?usp=sharing
+
